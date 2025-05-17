@@ -111,3 +111,14 @@ For questions, improvements, or feedback:
 **Designed with ❤️ using Power BI to empower HR decision-making through data.**
 
 
+![{BA20544C-E991-4138-92C5-CCBC4AB1F2A1}](https://github.com/user-attachments/assets/e875240a-87e5-4b8b-ab81-54f54c8b42c2)
+![{389B983A-7D08-4ACE-A076-14E5DB6BB209}](https://github.com/user-attachments/assets/d5e003cb-1a59-4aef-b0cb-6b695cb6562a)
+![{2AAC36E3-27B7-4ECA-8863-198DEC78CC81}](https://github.com/user-attachments/assets/9da6ec3e-c590-444b-a5ed-e606728cb2bf)
+![{58A23230-A035-40DC-B483-29B2D562669C}](https://github.com/user-attachments/assets/294855d0-23c0-4301-8861-15f4467ec4fd)
+![{3D09D73A-114A-4FDC-A818-AB9AD0619A4B}](https://github.com/user-attachments/assets/6942dbd3-38a6-402c-986d-6bd68520ae94)
+
+if you want to real to touch it and see it , get it on my personal website : (https://nurbek18.github.io/personalweb/)
+
+
+
+
